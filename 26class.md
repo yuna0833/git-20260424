@@ -1,0 +1,1 @@
+https://softcatch.github.io/self-info/
